@@ -11,7 +11,7 @@
 
 It's blue belt
 
-![blue belt](image.png) 
+![blue belt](https://basket-02.wb.ru/vol192/part19200/19200576/images/big/1.jpg) 
 
 
  
